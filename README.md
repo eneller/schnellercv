@@ -1,0 +1,1 @@
+/ʃnˈɛlɜ/ (German: faster)
